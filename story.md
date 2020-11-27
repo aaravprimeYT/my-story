@@ -2,3 +2,6 @@ The story begins in 2004 when a crew of bank robbers — Michael Townley, Brad, 
 
 Nine years later, Michael is currently in therapy. Under his new name of Michael De Santa, he and his wife have started a family. However, Michael is miserable with the day-to-day grind and occasionally misses the action of his old life, much to the great dismay of the corrupt FIB agent in charge of his protection, Dave Norton.
 
+Michael gets a taste of the criminal life again when his son's car is stolen by two gang bangers named Lamar and Franklin. These two are barely scraping by, making their living working for a shady car dealer named Simeon, who uses underhanded methods, including theft, to repossess cars from his clients. Unfortunately for Franklin and company, Michael was in the back seat of this car when they made off with it, and he's none too happy about the attempted theft.
+
+Michael wrecks Simeon's business and threatens the man at gunpoint, but seemingly takes a shine to Franklin's fearless demeanor. Though Michael's outburst costs Franklin his job, the two hit it off, and Michael invites Franklin to come over to his place sometime for a drink and a chat. Franklin, meanwhile, is going stir crazy living with his overbearing aunt in a rundown old house. He also has to contend with Lamar's increasingly dangerous schemes, which almost always go poorly.

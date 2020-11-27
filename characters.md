@@ -9,3 +9,5 @@ Lester
 Dave
 Steve Haines
 Brad
+Simeon
+Lamar
